@@ -1,5 +1,5 @@
-![Image](https://github.com/user-attachments/assets/bf7c5002-6f7f-4943-bd7b-6ba990dae278)![Image](https://github.com/user-attachments/assets/bf7c5002-6f7f-4943-bd7b-6ba990dae278)![Image](https://github.com/user-attachments/assets/bf7c5002-6f7f-4943-bd7b-6ba990dae278)
-![Image](https://github.com/user-attachments/assets/8a5249d1-d0e2-4ca5-a9d6-a590e8ca510b) 
+<img width="1320" height="1320" alt="Image" src="https://github.com/user-attachments/assets/5d3d14bb-9e3c-487c-acb5-d1adc3a78338" />
 
+                                                          ῳıŋɖყ ʂıɖɛ..
 
-![Image](https://github.com/user-attachments/assets/bf7c5002-6f7f-4943-bd7b-6ba990dae278)![Image](https://github.com/user-attachments/assets/bf7c5002-6f7f-4943-bd7b-6ba990dae278)![Image](https://github.com/user-attachments/assets/bf7c5002-6f7f-4943-bd7b-6ba990dae278)
+                                                        ɖơŋ'ɬ Ɩɛą۷ɛ ɱɛ!!
