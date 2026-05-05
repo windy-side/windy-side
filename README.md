@@ -2,3 +2,6 @@
 
 
    ‎<p align = "center">  $\color{cyan}{\textsf{HA! REEEE..FRESHING!}}$ <br>
+   ![VIEWC](https://komarev.com/ghpvc/?username=your-windy-n2gare&color=blue&style=plastic&label=refreshed)
+ 
+
