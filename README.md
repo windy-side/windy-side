@@ -1,20 +1,30 @@
 
-<img width="2048" height="258" alt="POOPS" src="https://github.com/user-attachments/assets/43f17559-9dce-4139-bf4e-74f7c74979af" />
+<img width="1000" height="240" alt="tumblr_7bcc2dd3a558b4f06da2e83a057e1301_d081e430_640" src="https://github.com/user-attachments/assets/a4e055e9-53dd-4572-b34f-c4af7b62adcc" />
+
+<img width="4000" height="200" alt="tumblr_631b04637822d0d2d732f653ac711338_7ac014dc_400" src="https://github.com/user-attachments/assets/71ce0eaa-bfb9-4e51-b827-2bfa4273f6d8" />
 
 
-‎<img align="left" width="500" height="27" alt="tumblr_840ecc5e7046c9b6bc054958d1f70869_dd4f0823_400 (1)" src="https://github.com/user-attachments/assets/0bdf369b-f03d-466a-bb2e-78d400d0525a" />
-<img width="500" height="27" alt="20 sin título_20260517144706" src="https://github.com/user-attachments/assets/36b380bf-0e06-4cbe-be4e-1821477ae826" />
-<img align="left" width="500" height="500" alt="15 sin título" src="https://github.com/user-attachments/assets/b496c87f-6246-4e1e-95ba-13b037b4c5da" />
+ <p align="center">  <img width="200" height="80" alt="tumblr_e25f3421b8344edd234e36489dbe4601_7dc48201_100" src="https://github.com/user-attachments/assets/3d185ac8-b350-45fd-9205-20c874f5f757" />
+
+  <p align="center">   
+                           <p align="center">${\textsf{\color{#90ee90} ꔫ }}$ 
+
+
+
   
- 
 
-<img align="left" width="500" height="360" alt="Homer Drops His Soda" src="https://github.com/user-attachments/assets/554398ae-64bf-4f30-b35d-474b237796d9" />
-    
-<table>
-  <tr>
-    <th>
-       $\color{pink}{\textsf{˚.🦴 ᵎᵎallways.. on the safe spanish server!! }}$ <br>
-      
-  <img width="500" height="34" alt="26 sin título_20260518175636" src="https://github.com/user-attachments/assets/50d7cc56-de5f-4b27-92e9-285a1ac9e90b" />
+<img width="1000" height="67" alt="tumblr_bc0c1e817881502bc8f739b0c9448c08_9c5b4766_400" src="https://github.com/user-attachments/assets/f224336d-9fbb-45d3-9208-72d3dca5aa0d" />
 
-<img width="2040" height="240" alt="tumblr_5e2b02046cca3054f04621f633602e0e_c4f6a09c_2048" src="https://github.com/user-attachments/assets/ed634d64-2d94-4fba-b7d1-72969c1838b9" />
+ <p align="center">${\textsf{\color{#90ee90} hello. im windy. nice to meet ya! }}$ 
+ <p align="left">${\textsf{\color{#90ee90} she/her }}$ 
+ <p align="right">${\textsf{\color{#90ee90} windys main }}$ 
+ <p align="center">${\textsf{\color{#90ee90}  twinkle.　 }}$ 
+
+   
+ $$\color{#4a3331}my\color{#815D4C}\color{#94b73}web\color{#cbf99e}sites\ \color{#ffffff}!\ \color{#ffe6f4}\ \color{#ffd1eb}\color{#ffb0dd}\color{#ff9cd4}$$
+   
+[<img width="270" height="270" alt="tumblr_1e7bd41740dce4d0e8e4528cc76f9c14_984a9f2c_640" src="https://github.com/user-attachments/assets/e119bd22-3119-404f-8609-5f9f0f9684aa" />
+]( https://frutiger-life.straw.page/)                                                          [<img width="270" height="270" alt="tumblr_559afac767bcf39e2fe490ed8e3befd4_7f5c7e7d_500" src="https://github.com/user-attachments/assets/cf38208e-f0df-42de-a376-9b02d56e6d0f" />
+](https://httpsstrawpagecutewelcome.straw.page/)  
+
+   
